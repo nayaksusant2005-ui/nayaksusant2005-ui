@@ -8,18 +8,13 @@
   <img src="https://profile-readme-generator.com/assets/snake.svg" alt="Snake animation" />
 </div>
   
-Email Me 👉 ✉️ **dipakkubehera1@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **nayaksusant2005@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently PERSUING BTECH DEGREE**- GIET UNIVERSITY GUNUPUR
-- 🌱 **I’m currently learning:-**BTECH WITH CSEAIML
-- 👯 **I’m looking to collaborate on:-** resturants,hotels and any shops
+- 🔭 **I’m currently PERSUING BTECH DEGREE**- GITA AUTONOMOUS COLLAGE,BHUBANESHWAR
+- 🌱 **I’m currently learning:-**CSE
 - 💬 **Ask me about:-** Collaboration, editing
-- 📫 **How to reach me:-**dipakkubehera1@gmail.com
+- 📫 **How to reach me:-**nayaksusant2005@gmail.com
 - ⚡ **Fun fact:-** I Love Tech and Tech Love Me
-
-## 🔗 I am a Content Creator. 😊😊
-
-Stay updated with the latest videos by subscribing to my YouTube channel and following on Instagram, Facebook and youtube
 
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
